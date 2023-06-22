@@ -1,0 +1,1 @@
+This repository is the diary of my can that won't stay out of the fucking garbage can trying to pull out a mostly eaten chip bag, store the chip bag under the bed, and munch on chips at 6 in the morning. On god fuck this cat.
